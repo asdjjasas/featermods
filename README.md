@@ -1,5 +1,5 @@
-# featermods
-my mods bro
+This is a private github padge, only made for kids who wanna dupe on donutsmp!
 
+This dupe is not patched to this date as im talking 16th September!
 
-if only reps chould kill id be a nigger
+Try it and dont share it with friends.
